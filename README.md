@@ -11,7 +11,7 @@
 
 <div align="center">
 
-[![imgur](https://i.ibb.co/6JnnWWNq/1754885361808.jpg)
+[![imgur](https://i.imgur.com/cUxE5WH.jpeg)
 
 
 ### Request
